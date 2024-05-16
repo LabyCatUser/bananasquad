@@ -59,7 +59,7 @@ I want to make a big shoutout to: [@vinyzu](https://github.com/Vinyzu) for helpi
 - https://github.com/9dmunozmarkN
 - https://github.com/eZdwardrssta4nley
 - https://github.com/mryXWoss
-- https://github.com/wezHbbbryanM
+- https://github.com/wezHbbbryanM (*deleted*)
 - https://github.com/maqrtineLzjulyie
 - https://github.com/tlj38djelx1b
 - https://github.com/AFFONSEC
@@ -82,12 +82,12 @@ I want to make a big shoutout to: [@vinyzu](https://github.com/Vinyzu) for helpi
 - https://github.com/imadsvx
 - https://github.com/Mattia69
 - https://github.com/maxmyth23
-- https://github.com/jebssicaTgVonzalez
+- https://github.com/jebssicaTgVonzalez (*deleted*)
 - https://github.com/g2fxaho9r5
 - https://github.com/u3as675e2081
 - https://github.com/Banquadform
 - https://github.com/xhaJrjriOs
-- https://github.com/brokencode214
+- https://github.com/brokencode214 (*deleted*)
 - https://github.com/cannUondSebor5ah
 - https://github.com/llisQasmitbh
 - https://github.com/tr3aPcuey53
@@ -98,7 +98,7 @@ I want to make a big shoutout to: [@vinyzu](https://github.com/Vinyzu) for helpi
 - https://github.com/mvegavn41h
 - https://github.com/melaSnTieL68
 - https://github.com/tstoWn2le
-- https://github.com/wyattdoesstufff
+- https://github.com/wyattdoesstufff (*deleted*)
 - https://github.com/qthomz6Bas
 - https://github.com/bentoboxxy
 - https://github.com/caqrloslanzrdry
@@ -183,13 +183,13 @@ I want to make a big shoutout to: [@vinyzu](https://github.com/Vinyzu) for helpi
 - https://github.com/ychmolxden
 - https://github.com/XaxarFmstrong
 - https://github.com/Wwilliafm22w
-- https://github.com/Wtoneilv6l
+- https://github.com/Wtoneilv6l (*deleted*)
 - https://github.com/WscottI53u
 - https://github.com/WLhbenHson
 - https://github.com/wartdOamasnda
 - https://github.com/walshbenWwjaHmin
 - https://github.com/walkerkawirtlymn
-- https://github.com/waeis8sBjoann
+- https://github.com/waeis8sBjoann (*deleted*)
 - https://github.com/vmuicha7elleon
 - https://github.com/vmsullIivanW
 - https://github.com/vcalexandxerZ
